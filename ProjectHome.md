@@ -1,0 +1,1 @@
+Web cuya principal misión es poner en contacto a las personas que quieren prestar algún servicio voluntario de la naturaleza que sea, con aquellas personas que necesitan esa ayuda. La idea principal es que dicho servicio sea de ámbito local, es decir, que dentro de una localidad pueda confluir la demanda y la oferta.
